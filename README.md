@@ -25,5 +25,5 @@
 ---
 
 ### 📫 Connect with Me:
-- Instagram: [@_rfz08](https://instagram.com/_rfz08)
+- Instagram: [@rajendra.a.fawwaz](https://instagram.com/rajendra.a.fawwaz)
 - Email: [rajendrasekolah@gmail.com](mailto:rajendrasekolah@gmail.com)
